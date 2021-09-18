@@ -1,0 +1,2 @@
+# SCOIN
+SCOIN Token
